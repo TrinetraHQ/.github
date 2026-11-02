@@ -1,4 +1,4 @@
-## Hi there 👋
+## Trinetra - The Third Eye 👋
 
 <!--
 
